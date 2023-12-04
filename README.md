@@ -12,4 +12,4 @@ joao.baum.vieira@escola.pr.gov.br
 
 @baumj_wx
 
-![](https://tenor.com/pt-BR/view/drake-central-cee-rolex-gif-27452801)
+![](https://media.tenor.com/xr-HJ_EtdggAAAAC/cr7eu-sou-melhor.gif)
